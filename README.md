@@ -11,3 +11,8 @@ Meu nome é Victoria Fernandes
 ### Você pode entrar em contato comigo 📫
 
 00001102928008sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/7FYpoXfpAIUAAAAd/snowball-bunny.gif)
+
+
+
